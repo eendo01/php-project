@@ -1,1 +1,0 @@
-# kendo-who-memed-it
